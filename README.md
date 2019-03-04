@@ -1,0 +1,2 @@
+# corporate
+Risorse Utilizzate Internamente
